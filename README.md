@@ -1,0 +1,1 @@
+# Parallax-Personal-Website-Not-Responsive
